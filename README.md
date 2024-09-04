@@ -13,4 +13,4 @@
 
 - Pretendo fazer engenharia mecatrônica ou mecânica:
 
-![gif](https://tenor.com/pt-PT/view/quby-chan-hi-wave-hello-hi-there-gif-17010845)
+![GIF](https://tenor.com/bjxsD.gif)
