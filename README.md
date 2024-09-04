@@ -12,3 +12,5 @@
 - Gosto de ler, principalmente fantasia;
 
 - Pretendo fazer engenharia mecatrônica ou mecânica:
+
+![](ttps://tenor.com/bjxsD.gif)
