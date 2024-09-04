@@ -1,16 +1,16 @@
 ## Hi there 👋
+**Julia de Paula Siqueira**
 
-<!--
-**julsiqueira/julsiqueira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-15 anos; 
 
-Here are some ideas to get you started:
+-Estudante do novo ensino médio; 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Itinerário de ciências da natureza (pro ano que vem); 
+
+-Inglês em desenvolvimento;
+
+-Gosto de ler, principalmente fantasia;
+
+-Pretendo fazer engenharia mecatrônica ou mecânica:
+
+![](https://tenor.com/vGe6OIBI6Mo)
