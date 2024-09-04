@@ -1,16 +1,16 @@
-## Hi there 👋
+## bem vindo(a)!😼
 **Julia de Paula Siqueira**
 
--15 anos; 
+- 15 anos; 
 
--Estudante do novo ensino médio; 
+- Estudante do novo ensino médio; 
 
--Itinerário de ciências da natureza (pro ano que vem); 
+- Itinerário de ciências da natureza (pro ano que vem); 
 
--Inglês em desenvolvimento;
+- Inglês em desenvolvimento;
 
--Gosto de ler, principalmente fantasia;
+- Gosto de ler, principalmente fantasia;
 
--Pretendo fazer engenharia mecatrônica ou mecânica:
+- Pretendo fazer engenharia mecatrônica ou mecânica:
 
-![](https://tenor.com/vGe6OIBI6Mo)
+![](https://tenor.com/pt-PT/view/quby-chan-hi-wave-hello-hi-there-gif-17010845)
