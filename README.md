@@ -13,4 +13,4 @@
 
 - Pretendo fazer engenharia mecatrônica ou mecânica:
 
-![](ttps://tenor.com/bjxsD.gif)
+![](https://media1.tenor.com/m/puCYwRQBIyQAAAAC/yaelokre.gif)
