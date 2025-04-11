@@ -1,11 +1,11 @@
 ## bem vindo(a)!😼
 **Julia de Paula Siqueira**
 
-- 15 anos; 
+- 16 anos; 
 
 - Estudante do novo ensino médio; 
 
-- Itinerário de ciências da natureza (pro ano que vem); 
+- Itinerário de ciências da natureza; 
 
 - Inglês em desenvolvimento;
 
